@@ -1,1 +1,1 @@
-# rsschool-cv
+https://MousecomL.github.io/rsschool-cv/cv
